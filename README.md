@@ -1,4 +1,4 @@
-## Hi I'm Jan
+## Visit my website: [janpc01.github.io](https://janpc01.github.io/)
 
 ### Software Developer | Bachelor of Science in Physics and Computing Science
 
